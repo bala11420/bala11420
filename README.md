@@ -2,7 +2,7 @@
 
 **Electronics & Communication Engineering Student | Embedded Systems | IoT | PCB Design**
 
-📍 Guntur, Andhra Pradesh | 📧 gangadharbhagathi@gmail.com | 🔗 [LinkedIn](https://linkedin.com/in/gangadhara-bagathi-44657429a)
+📍 Guntur, Andhra Pradesh | 📧 gangadharbhagathi@gmail.com | 🔗 [LinkedIn](https://www.linkedin.com/in/bhagathi-gangadhar-51314a369/)
 
 ---
 
