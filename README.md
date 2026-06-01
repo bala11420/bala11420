@@ -114,6 +114,6 @@ I'm actively looking for **Embedded Systems / IoT Hardware Engineer** roles.
 
 📧 **gangadharbhagathi@gmail.com**
 📱 **+91 9398112830**
-🔗 **[LinkedIn](https://linkedin.com/in/gangadhara-bagathi-44657429a)**
+🔗 **[LinkedIn]((https://www.linkedin.com/in/bhagathi-gangadhar-51314a369/))**
 
 > *"I don't just write code — I build systems that solve real problems in the real world."*
